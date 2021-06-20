@@ -1,0 +1,1 @@
+add milk and add choclate & protien powder and finally add icecubes and blend in mix it finall the milkshake is ready to drink
